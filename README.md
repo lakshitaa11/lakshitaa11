@@ -1,5 +1,5 @@
 # Hey there 🦋, Lakshita this side:
-👩🏻‍💻 I'm currently **upskilling myself**<br>👩🏻‍🎓 Computer Science - AI & ML undergrad at ABES Engineering College<br>💭 Currently learning **ReactJS**<br>🌷 Reach me via **lakshita008@gmail.com**<br>📺 Binge-watching thrillers during my downtime
+👩🏻‍💻 I'm currently **upskilling myself**<br>👩🏻‍🎓 Computer Science - AI & ML undergrad at ABES Engineering College<br>💭 Currently learning **ReactJS**<br>🌷 Reach me via **lakshita008@gmail.com**<br>📺 Binge-watching thrillers & rom-coms during my downtime
 
 
 ## 🌐 Socials:
